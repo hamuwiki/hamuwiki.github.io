@@ -1,0 +1,1 @@
+# hamuwiki.github.io
